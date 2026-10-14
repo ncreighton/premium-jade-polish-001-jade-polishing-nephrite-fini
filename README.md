@@ -1,0 +1,2 @@
+# premium-jade-polish-001-jade-polishing-nephrite-fini
+Struggling to get that mirror-like finish on your jade or nephrite pieces without chipping or clouding? This guide cracks the code for a flawless, professional polish at home.  Unlike generic gemstone tutorials, this method is tailored specifically to the dense, fibrous structure of jade and nephrite, eliminating guesswork. You'll learn precise gri
